@@ -1,2 +1,2 @@
 # About
-This is my WhiteharJr Project 70 ���
+This is my WhiteharJr Project 70 😃
